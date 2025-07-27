@@ -2,7 +2,7 @@
 
 Choose a story to read:
 
-- [🌟 Шарада](README.md)
+- [🌟 Шарада](First_story.md)
 - [✨ Sharade](second_story.md)
 
 
