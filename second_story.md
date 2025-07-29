@@ -136,7 +136,7 @@ But before anyone could joke or sigh, smirk or blurt out a name, Ilgar’s voice
 
 
 
-It’s Narmina! Of course it’s Narmina!
+“It’s Narmina! Of course it’s Narmina!”
 
 His voice rang out — so delighted, so full of light, as if he were naming an undeniable truth.
 
@@ -276,10 +276,6 @@ But to love — was to live.
 
 
 
-“You guessed it. It’s your sister.”
-
-
-
 Then Shamil nodded.
 
 Seriously. Without irony.
@@ -307,18 +303,6 @@ No one said, “Come on, really?”
 Because in those words — she’s the most beautiful and the smartest — there was no pretense.
 
 They were spoken with such sincerity that contradicting them would’ve felt cruel.
-
-
-
-A long, ringing pause followed.
-
-And again, Shamil nodded.
-
-Serious. Without irony.
-
-
-
-“You guessed it. It’s your sister.”
 
 
 
@@ -374,7 +358,7 @@ And she wouldn’t have known what to say.
 
 The house was dim.
 
-Sunlight lay in stripes across the floor.
+Sunlight lay in stripes across the floor. Ilgar started babbling to his mother as soon as she opened the door.
 
 She slipped off her sandals, stepped into the room, and sat on the edge of the bed.
 
@@ -1135,6 +1119,8 @@ In the distance, the lights of their building twinkled. Summer was beginning.
 
 
 And no more riddles could frighten her
+
+
 
 
 
