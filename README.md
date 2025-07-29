@@ -1,5 +1,4 @@
 # 📖 Welcome to My Fiction Stories
-![Alt text](images/AM.jpg)
 
 Choose a story to read:
 
