@@ -12,7 +12,7 @@ But it all happened in real life—in Houston, the southern American city we mov
 
 
 
-In some ways, Houston reminded me of Baku—maybe because of the blazing southern sun that melts the asphalt, or the heavy magnolia leaves that are everywhere here. But even more so, it was the multicultural atmosphere. Just like in the old days in Baku, where Azerbaijanis, Russians, Jews, Armenians, Lezgins, Georgians, and Tatars lived side by side, so here too, on the other side of the world, in a single neighborhood lived Texans, Latin Americans, African Americans, Indians, Pakistanis, Chinese, Arabs…
+In some ways, Houston reminded me of Baku—maybe because of the blazing southern sun that melts the asphalt.  But even more so, it was the multicultural atmosphere. Just like in the old days in Baku, where Azerbaijanis, Russians, Jews, Armenians, Lezgins, Georgians, and Tatars lived side by side, so here too, on the other side of the world, in a single neighborhood lived Texans, Latin Americans, African Americans, Indians, Pakistanis, Chinese, Arabs…
 
 Yet the ocean between us wasn’t only geographical. It divided memory, scents, language—even the landscape. Everything felt… not quite right. And though I tried to put down roots, every curve in the road, every branch on a tree, even the sound of the rain whispered to me: you are from another world.
 
