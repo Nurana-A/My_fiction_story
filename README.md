@@ -2,7 +2,7 @@
 
 Choose a story to read in English
 
-- [✨ Charade](second_story.md)
+- [✨ Charades](second_story.md)
 - [✨ The Pomegranate Tree](N2_story.md)
 
 Рассказы на русском:
