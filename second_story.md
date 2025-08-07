@@ -1,6 +1,7 @@
 # Charades
 
 
+
 Summer was drawing to a close. Narmina had finished fourth grade, and instead of joy, a dull fear gripped her — school was starting soon. All her anxiety narrowed down to one thing: they were getting a new math teacher. Instead of the kind and fair Valentina Dmitrievna, someone else was coming. Liliya Samoylovna.
 
 There were real legends about her. The strictest, the most uncompromising of all. But the scariest part was that Liliya Samoylovna reminded Narmina of the babai ( babayka)* from her childhood nightmares — the one who used to chase her through the twisting corridors of dreams, trying to grab her with long, hooked fingers. Luckily, the creature never succeeded — Narmina always woke up just in time, saved by the alarm clock or a sudden shout from outside.
@@ -627,7 +628,6 @@ And no more riddles could frighten her
 
 In Slavic folklore, “Babai” (or “Babayka,” “Babayko,” or “Bebok”) is a night spirit or bogeyman used to frighten children into behaving.
 He is said to abduct children who don’t sleep at night or misbehave.
-
 
 
 
