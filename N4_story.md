@@ -202,7 +202,7 @@ The wooden seats were slightly slippery, and every jolt tossed us like balls. We
 
 
 
-In the cabin, Uncle Akper sat beside the driver. We still didn’t know where we were going, but it didn’t matter. The journey itself was wonderful — bumps, dusty paths, barking village dogs, poplars flashing past, blue sky above, the smell of steppe grass wrapping around us like a warm blanket.
+In the cabin, uncle Akper sat beside the driver. We still didn’t know where we were going, but it didn’t matter. The journey itself was wonderful — bumps, dusty paths, barking village dogs, poplars flashing past, blue sky above, the smell of steppe grass wrapping around us like a warm blanket.
 
 
 
@@ -210,7 +210,7 @@ Half an hour passed unnoticed. Dawn was barely breaking. Smiles never left our f
 
 
 
-The truck rounded a large hill and stopped. We looked around and saw the sunrise over a field of unusual beauty. At first, it seemed the sky and the land were glowing red. Then, as Uncle Akper and the driver helped the children down and we all approached the field, it became clear: we were facing a breathtaking poppy field. I had never seen such a mesmerizing sight — sky and earth merged, pulsating in red, as if the entire field were part of the magical phenomenon of sunrise.
+The truck rounded a large hill and stopped. We looked around and saw the sunrise over a field of unusual beauty. At first, it seemed the sky and the land were glowing red. Then, as uncle Akper and the driver helped the children down and we all approached the field, it became clear: we were facing a breathtaking poppy field. I had never seen such a mesmerizing sight — sky and earth merged, pulsating in red, as if the entire field were part of the magical phenomenon of sunrise.
 
 
 
